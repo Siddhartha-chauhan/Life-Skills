@@ -4,7 +4,7 @@
 What are the steps/strategies to do Active Listening?
 - Avoid getting distracted by your own thoughts
 - focusing on topic and speaker
-- not interrupting pther person
+- not interrupting other person
 - letting other person finish and then then responding 
 - use of body language 
 - taking notes if appropriate
